@@ -15,4 +15,5 @@ Throughout your adventure, you'll find hundreds of players you've probably never
 Now sit back, relax, and please email me if you find anything even remotely valuable (or if I made a mistake in cataloging) at this email address.
 
 Thanks for stopping by,
+
 Julian
